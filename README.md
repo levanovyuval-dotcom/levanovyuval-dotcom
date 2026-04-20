@@ -1,5 +1,4 @@
-# 💫 About Me:
-currently learning
+# Hi, I'm Yuval Levanov! 👋
 
 
 ## 🌐 Socials:
